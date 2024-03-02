@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning BBA
 - 💞️ I’m looking to collaborate on chats
 - 📫 How to reach me +255756005093
-- 😄 Pronouns: we
+- 😄 Pronouns: we us
 - ⚡ Fun fact: born to be born
 
 <!---
